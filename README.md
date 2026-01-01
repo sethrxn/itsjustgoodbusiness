@@ -13,7 +13,8 @@
   <br/a>
   .   ⌢⌢  did ◞ bipolar-2 ◞ autism     ⸝⸝  🪽 <br/>
   <br/>
+  ── ⟡ ˙ c + h unless i know you iwec @ all times , very unstable  ̟ ⊹ <br/>
+  <br/>
   ᶻz ⋮ <a href="https://rentry.co/sethrxn">01</a> ◞ <a href="https://sethrxn.straw.page/">02</a> ◞ <a href="https://sethrxn.atabook.org/">03</a> ◞ <a href="https://pronouns.cc/@sethrxn">04</a> ⸝⸝
  </p>
 <img width="1280" height="308" alt="1000044432" src="https://github.com/user-attachments/assets/ac242e2e-db00-4ebd-a66d-835cfe2d31ce" />
-</body>

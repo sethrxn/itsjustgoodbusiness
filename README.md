@@ -1,2 +1,2 @@
-# -.-it-s-just-good-business-
-♱⌣⌣    welcome fo the family jewels ! coal to diamond , sold to fools .𖥔˖
+# .itsjustgoodbusiness
+♱⌣⌣    welcome to the family jewels ! coal to diamond , sold to fools .𖥔˖
